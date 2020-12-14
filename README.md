@@ -1,1 +1,1 @@
-# webtech1beadando
+# WEBTECHNOLÓGIÁK 1 beadandó
